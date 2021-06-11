@@ -1,2 +1,2 @@
-# Aj3au0603.github.io
+# Gurafans
 I love Gura!
